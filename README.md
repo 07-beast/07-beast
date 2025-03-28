@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... TBH nothing But Always curious behind codes/logic/binary
 - 💞️ I’m looking to collaborate on ... Umm it would be appreciate if someone can help me
 - 📫 How to reach me ... well this is my mail usertesting363@gmail.com 
-- 😄 Pronouns: ... Ayy, Kesa hai, How are you Dude, | Hey VILLEN my pet name ;)
+- 😄 Pronouns: ... Ayy, Kesa hai, How are you Dude, | Hey VILLEN - my pet name ;)
 - ⚡ Fun fact: ... kuch khash nhi | Nothing Much don't forget to smile :)
 
 <!---
